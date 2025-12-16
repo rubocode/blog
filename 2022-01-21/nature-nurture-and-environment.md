@@ -12,7 +12,7 @@ Nature is who you are — your strengths, abilities and preferences.  You will h
 
 Nurture is what the people around you do with this unique combination.  Here, other human beings guide your learning in a positive or negative way shaping you in various different aspects.  Nurture creates a foundation for the way you approach your future challenges.  It develops your character.
 
-Environment is where you find yourself in any given moment.  You can also think of it as one or more scenarios you are facing.  Your initial nurture happens in an environment usually made up your family, neighborhood and school.
+Environment is where you find yourself in any given moment.  You can also think of it as one or more scenarios you are facing.  Your initial nurture happens in an environment usually made up of your family, neighborhood and school.
 
 Your learning in the progression of environments you navigate prepares you for greater challenges. It enhances your character and the skill with which you navigate a new or more complex environment.
 
